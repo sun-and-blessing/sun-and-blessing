@@ -1,4 +1,4 @@
-## Welcome to sun-and-blessing
+## Sun And Blessing
 
 Hello,
 
